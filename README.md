@@ -1,0 +1,5 @@
+- 👋 Olá, sou o @VTXc0d3X
+- 👀 Estou interessado em aplicações em C#
+- 🌱 Estou atualmente estudando lógia e C#
+- 💞️ Novas Relações de trabalho sempre bem vindas.
+- 📫 Contato: VTX#2022
